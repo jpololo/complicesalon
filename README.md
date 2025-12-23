@@ -138,7 +138,7 @@ La web está optimizada para:
 
 Para consultas sobre el proyecto:
 - Instagram: [@complices_salon](https://www.instagram.com/complices_salon?igsh=NmVid2EzenZ1OGIz)
-- Email: info@complicesalon.cu
+- Email: info@complicesalon.com
 
 ---
 
